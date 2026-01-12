@@ -1,1 +1,2 @@
-![AUREO_logo png](https://github.com/user-attachments/assets/0a1fa81a-a1ca-48fa-988b-aa8f059cf6b2)
+![AUREO_logo png](https://github.com/user-attachments/assets/48f90cef-f307-49cf-8425-66ce9aa4a550)
+png
